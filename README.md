@@ -1,0 +1,1 @@
+# Deprem-onlmesi-icin-alinan-tedbirler
